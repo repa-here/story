@@ -19,14 +19,14 @@ The Titan pinched the earth between his fingers and lifted it upward. Stone fold
 When the world was finished, the Titan spoke its name.
 
 Azara.
-The land was complete, but it was empty, and emptiness displeased him a lot.
+The land was complete, but it was empty, and emptiness displeased him.
 So the Titan turned his attention to creation once more.
 
 From the rich soil of Azara, he gathered earth, warm and full of life. He shaped it into a form that could stand and walk. He gave it hands to build and eyes to wonder. Then he breathed into it a spark of will.
 
 Thus, humans were born.
 
-They were not made eternal. Their lives were short, and their bodies fragile, but their spirits burned bright. The Titan gave them curiosity, desire, and the need to seek meaning. He gave them fear so they would survive, and hope so they would endure. He knew they would struggle a lot, but struggle would make them grow.
+They were not made eternal. Their lives were short, and their bodies fragile, but their spirits burned bright. The Titan gave them curiosity, desire, and the need to seek meaning. He gave them fear so they would survive, and hope so they would endure. He knew they would struggle, but struggle would make them grow.
 
 Yet as the Titan observed them, he saw that humans would wander far across the world. They would change the land, but they would not know its deepest bones.
 
@@ -38,7 +38,7 @@ Thus, the dwarves were born.
 
 To them, the Titan gave the deep places of Azara. He taught them the language of stone and the patience of the earth. They learned to mine the mountains, to shape metal, and to build halls beneath the world. Their beards grew long as symbols of age and honor. They were stubborn and unyielding, loyal to kin and craft. Where humans built upward, dwarves built inward, carving their legacy into the bones of the land.
 
-Still, the world was not balanced, and the Titan desired harmony a lot.
+Still, the world was not balanced, and the Titan desired harmony.
 So he turned to the forests.
 
 From living wood and flowing sap, he shaped slender forms. He gave them long limbs and sharp senses. He bound their spirits to the rhythm of wind and leaf, and their hearts to the passing of seasons.
